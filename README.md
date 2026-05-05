@@ -1,9 +1,5 @@
-【Updated on Apr 26】
-Please feel free to talk to me in SF:
-a. Stripe Sessions 2026 | The global internet economy conference (Apr 29 - Apr 30)
-b. Hyatt Regency San Francisco Downtown SOMA, zip 94103. (Feel free to talk to me there. Will stay there from Apr 28, 10pm to May 1, 9pm, 2026)
+【Updated on May 6】
 
-Actively looking for AI Researcher job - especailly in OpenAI or Meta.
 My contact info: 
 signal: @aureliankeke.12
 linkedin.com/in/cocochen2000   
